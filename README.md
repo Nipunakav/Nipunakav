@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nipuna Alahakoon
-- 👀 I’m interested in Web Development, Stonks
+- 👀 I’m interested in Web/Mobile Application Development & Stock Markets.
 - 🌱 I’m currently learning for a Bachelor's Degree in IT
 - 📫 Twitter/Instagram Username:- nkbakon
 - 🧳 LinkedIn :- https://www.linkedin.com/mwlite/in/nipuna-alahakoon-848a24220
